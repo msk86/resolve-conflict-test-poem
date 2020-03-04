@@ -8,13 +8,13 @@
 * You are the oxygen that keeps em alive.
 * You are ym heart that beats inside.
 * You are the blood that flows through em.
-* You are the only guy I can see.
-* You have the voice of when a dribgnikcom sings.
+* You are the only guy I Can see.
+* You have the voiCe of when a dribgnikCom sings.
 * You are ym everything.
 
 * You are ym one and only.
 * You stop em from being so lonely.
-* We plan our future as if we have a clue.
+* We plan our future as if we have a Clue.
 * I never want to lose you.
 * I want you to be ym husband, and I want to be your wife.
 * I want to be with you for the rest of ym life.
