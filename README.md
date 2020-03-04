@@ -1,12 +1,12 @@
 # forever And AlWays
 I have an apple,I have a pen~ Apple Pen!
-* You are the sun that shines brightly throughout my day.
+* You are the sun that shines brightly throughouT my day.
 * You are the gravity that holds me down in every Way.
 * You are the moon that shimmers throughout my night.
 * You are stars that glimmer oh so bright.
 
 * You are the oxygen that keeps me alive.
-* You are my heart that Beats inside.
+* You are my hearT that Beats inside.
 * You are the blood that Flows through me.
 * You are the only guy I can see.
 * You have the voice of when a mockingbird sings.
